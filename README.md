@@ -1,2 +1,2 @@
-# Ch-r-i-t-tr-n-tr-i
+# Chữ rơi từ trên trời
 Mọi thứ thuộc về Esperanza
